@@ -141,4 +141,5 @@ The annual billing option delivers the biggest value, saving you hundreds compar
 
 [![Jungle Scout Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747035924/Jungle_Scout_Discount_Coupon_1_xxkvpm.jpg)](https://get.junglescout.com/affinco)
 
-👉 [**Get Your Jungle Scout Discount Coupon Now**](https://get.junglescout.com/affinco)
+[![Get Your Jungle Scout Discount Coupon Now](https://res.cloudinary.com/drzqec0oi/image/upload/v1747038889/Get_Your_Jungle_Scout_Discount_Coupon_Now_mz1vmt.png)](https://get.junglescout.com/affinco)
+
