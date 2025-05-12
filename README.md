@@ -45,6 +45,8 @@ Ready to save big on Jungle Scout? Follow these simple steps to grab your discou
 
 The discount will be automatically applied when you use our link—no coupon code needed. The whole process takes less than 5 minutes, and you'll have immediate access to all Jungle Scout features.
 
+[![Jungle Scout Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747035924/Jungle_Scout_Discount_Coupon_3_ificok.jpg)](https://get.junglescout.com/affinco)
+
 ## What Each Discounted Jungle Scout Plan Includes
 
 Not sure which plan fits your Amazon business? Here's a quick breakdown of what each discounted option offers:
