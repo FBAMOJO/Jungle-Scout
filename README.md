@@ -139,4 +139,6 @@ If you're serious about selling on Amazon, this Jungle Scout discount is an abso
 
 The annual billing option delivers the biggest value, saving you hundreds compared to monthly payments. Plus, with over 1 million sellers already using the platform, Jungle Scout has proven it delivers real results for Amazon businesses of all sizes.
 
+[![Jungle Scout Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747035924/Jungle_Scout_Discount_Coupon_1_xxkvpm.jpg)](https://get.junglescout.com/affinco)
+
 👉 [**Get Your Jungle Scout Discount Coupon Now**](https://get.junglescout.com/affinco)
